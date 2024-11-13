@@ -2,7 +2,8 @@
 翻墙FQ软件工具收集-稳定好用的VPN推荐
 (关键词：翻墙, vpn, 梯子, 如何上外网, fq, fanqiang, 加速器, 谷歌访问助手)
 
-
+2024年威伯斯云双十一活动开启，详情：
+https://www.vpnforchina.org/2024weibosiyunshuangshiyihuodongkaiqi/
 
 2022-7-30：
 https://www.vpnforchina.org/
